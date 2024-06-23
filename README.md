@@ -28,7 +28,7 @@ I am currently building my portfolio. Stay tuned for upcoming projects!
 
 ## Connect with Me
 
-- 💼 LinkedIn: [linkedin.com/in/evaregalado](www.linkedin.com/in/eva-regalado-06272a196)
+- 💼 LinkedIn: www.linkedin.com/in/eva-regalado-06272a196
 
 ---
 
